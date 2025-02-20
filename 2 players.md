@@ -1,4 +1,4 @@
-In my household, there are only 2 people who enjoy a nice game of Settlers of Catan, my daughter and me. So, a while back I started a search for the ultimate 2 player ruleset. I found a couple of descriptions on the internet and after I got “Catan: Traders & Barbarians” as a birthday present, I scraped everything together and developed the following rules for 2 players.
+I found a couple of descriptions on the internet and after I got “Catan: Traders & Barbarians” as a birthday present, I scraped everything together and developed the following rules for 2 players.
 
 These rules can be applied to the basic game, the Seafarers expansion, the Cities & Knights expansion and in some cases the Traders & Barbarians expansion.
 
