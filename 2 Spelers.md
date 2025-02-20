@@ -1,6 +1,4 @@
-Hallo allemaal, 
-
-Bij ons thuis zijn de enige die graag Catan spelen mijn dochter van 10 en ik. Daarom ben ik een tijdje geleden begonnen met mijn zoektocht naar de ultieme regels voor 2 spelers. Ik heb toen een aantal beschrijvingen gevonden en nadat ik Kooplieden & Barbaren had gekregen heb ik aan de hand van alles wat ik kon vinden de volgende regels opgesteld. Deze regels kunnen gebruikt worden voor het basisspel, Zeevaarders en Steden & Ridders en in een aantal gevallen hebben wij ze ook al gebruikt voor Kooplieden & Barbaren en voor een aantal scenarios. Ik hoop dat jullie er ook wat aan hebben. 
+Deze regels kunnen gebruikt worden voor het basisspel, Zeevaarders en Steden & Ridders en in een aantal gevallen hebben wij ze ook al gebruikt voor Kooplieden & Barbaren en voor een aantal scenarios.
 
 De regels zijn geschreven alsof er met Zeevaarders EN Steden & Ridders wordt gespeeld. Onderdelen die specifiek voor een van de 2 uitbreidingen zijn worden als volgt aangegeven:   
 \- *Tekst in Italic heeft betrekking op Zeevaarders*   
